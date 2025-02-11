@@ -1,2 +1,2 @@
-# chetan-surya-s.github.io
+# chetansuryas.github.io
 My website - I will soon update
